@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LuthKelana
 - 👀 I’m interested in geomechanics and petrophysics
-- 📫 How to reach me @phii.luth
+- 📫 How to reach me @phiii.luth
 - ⚡ Fun fact: like watching film
 
 <!---
